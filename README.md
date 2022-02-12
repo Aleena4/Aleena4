@@ -2,7 +2,8 @@
 - 👀 I’m interested in animation
 - 🌱 I’m currently learning Japanese and digital art
 - 💞️ I’m looking to collaborate on animation related projects
-- 📫 How to reach me - @aleena_clipwala3
+- 📫 How to reach me - insta-@aleena_clipwala3
+                       Gmail- aleenaclipwala570@gmail.com
 
 
 <!---
